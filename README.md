@@ -7,6 +7,8 @@ I also really like optimizing my PC's for maximum performance⚡️.
 
 I am interested in coding in different languages (Python, C++, HTML, CSS and JavaScript) 💻. 
 
+When something pops up into my imagination, I turn it into reality 😎.
+
 
 
 ## 🌐 Socials:
